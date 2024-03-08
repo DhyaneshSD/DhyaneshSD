@@ -3,9 +3,9 @@
 
 - 🌱 I’m currently learning **Data science,Machine Learning**
 
-- 👯 I’m looking to collaborate on **Ai and Ds Projects**
+- 👯 I’m looking to collaborate on **AI&DS Projects**
 
-- 🤝 I’m looking for help with **Data science project**
+- 🤝 I’m looking for help with **Data Science project**
 
 - 💬 Ask me about **python, Data science**
 

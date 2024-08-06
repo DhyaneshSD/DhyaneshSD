@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **dhyaneshsd1@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fyiSNAc1EGCDfNfTVtkKIVDs8rTCWezr/view?usp=drive_link](https://drive.google.com/file/d/1K_9-JZYZR-kuwgbBc8_wbFpAofE2JozS/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1fyiSNAc1EGCDfNfTVtkKIVDs8rTCWezr/view?usp=drive_link](https://drive.google.com/file/d/1bNJyXKPy919ZIkbktkgSfzReBJQdsYeE/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
